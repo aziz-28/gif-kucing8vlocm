@@ -1,1 +1,0 @@
-# gif-kucing8vlocm
